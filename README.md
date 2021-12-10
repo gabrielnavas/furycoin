@@ -1,0 +1,3 @@
+# furycoin
+# furycoin
+# furycoin
